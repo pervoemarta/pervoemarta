@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Olga.
-  Having been just an Analyst for about 10 years, I've started to develop as a Data Analyst. I got a certificate in Data Analytics and is now seeking for job offers in Data Analysis worldwide.
+  Having been just an Analyst for about 10 years, I've started to develop as a Data Analyst. I got a certificate in Data Analytics and I'm now seeking for job offers in Data Analysis worldwide.
 - 👩‍💻 I'd like to get the experience in Data Analysis to become a professional.
 - 🌏 I’m open to relocation to EU or anywhere where I'll be a good fit.
 - Don't hesitate to reach me out via:
